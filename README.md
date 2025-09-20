@@ -2,9 +2,9 @@
 官网最新地址：（更新时间：2025/09/20）
 每日大乱斗最新官方地址：https://xddou10.com
 
-每日大乱斗永久地址(需科学上网) ：https://mrdld.fun)
+每日大乱斗永久地址(需科学上网) ：https://mrdld.fun
 
-每日大乱斗TG官方群：[https://t.me/mrdld66
+每日大乱斗TG官方群：https://t.me/mrdld66
 
 失联后如何获取最新地址：
 方法一：邮箱发送任意邮件至每日大乱斗官方邮箱可获取最新地址 牢记官方邮箱：mrdldfun666@gmail.com
